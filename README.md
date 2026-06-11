@@ -1,1 +1,0 @@
-# Hinox-Terms-Service
